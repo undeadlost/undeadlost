@@ -55,7 +55,7 @@
 <strong>creds to <a href= "https://github.com/Ovrpheus" >my github mutual </a>   FULL INSPOOO (You make such coolie things:D) </strong>
 </p>
 <p align="center">
-<i>creds to <a href= "https://www.tumblr.com/lavendergalactic" >lavendergalactic </a> For graphics!!</i>
+<i>creds to  <a href= "https://www.tumblr.com/lavendergalactic" >lavendergalactic </a> For graphics!!</i>
 </p>
 <p align="center">
 <i>creds to <a href= "https://ouija.crd.co/#" >ouija </a> , <a href= "https://goldenkamuy.crd.co/#" >golden </a> for dividers and stamps!!</i>
