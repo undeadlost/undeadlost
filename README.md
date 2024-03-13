@@ -1,7 +1,9 @@
 <p align="center">
   <img width="20" height="20" src="https://github.com/undeadlost/Onyx/assets/160256094/534f191e-b342-44e2-994d-cfe21bfa8f10"  <h1 align="center"> <strong> . . It really is. Wouldn't it be fun if there were a bunch of Robo-Nene-shaped balloons everywhere? . . .</strong> </h1> <img width="20" height="20" src="https://github.com/undeadlost/Onyx/assets/160256094/534f191e-b342-44e2-994d-cfe21bfa8f10"<p align="center"> 
 
+&nbsp; 
 
+![tumblr_5c4dbe27d44ee92012fc8894da12c0a3_4d69d880_2048](https://github.com/undeadlost/undeadlost/assets/160256094/1198e100-6705-4b51-9856-8b136ced7d05)
 
 &nbsp; 
 
@@ -48,7 +50,9 @@
 
 
 &nbsp;
+![tumblr_5c4dbe27d44ee92012fc8894da12c0a3_4d69d880_2048](https://github.com/undeadlost/undeadlost/assets/160256094/1198e100-6705-4b51-9856-8b136ced7d05)
 
+&nbsp;
 
 <p align="center">
 <strong>creds to <a href= "https://github.com/Ovrpheus" >my COOLIE github mutual </a>  INSPOOO (You make such coolie things:D) </strong>
