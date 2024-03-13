@@ -51,7 +51,7 @@
 
 
 <p align="center">
-<strong>creds to <a href= "https://github.com/Ovrpheus" >my COOLIE github mutual </a>   FULL INSPOOO (You make such coolie things:D) </strong>
+<strong>creds to <a href= "https://github.com/Ovrpheus" >my COOLIE github mutual </a>  INSPOOO (You make such coolie things:D) </strong>
 </p>
 <p align="center">
 <i>creds to  <a href= "https://www.tumblr.com/vashwoodyuri" >vashwoodyuri </a> For graphics & dividers!!</i>
