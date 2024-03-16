@@ -54,7 +54,7 @@
 &nbsp;
 
 <p align="center">
-<strong>creds to <a href= "https://www.tumblr.com/cafekitsune" >cafekitsune </a> for dividers!! </strong>
+<i>creds to <a href= "https://www.tumblr.com/cafekitsune" >cafekitsune </a> for dividers!! </i>
 </p>
 <p align="center">
 <i>creds to  <a href= "https://www.tumblr.com/cirrusism" >cirrusism </a> for graphics!!</i>
