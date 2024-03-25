@@ -1,11 +1,11 @@
 <p align="center">
-  <img width="20" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/859e4e13-fcfe-4168-97a1-cbed00205cfe"  <h1 align="center"> <strong> . . I wonder what my dear sister Lynette is doing right now? Missing me to death, I'm sure! . . .</strong> </h1> <img width="20" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/859e4e13-fcfe-4168-97a1-cbed00205cfe"<p align="center"> 
+  <img width="20" height="20" src="https://64.media.tumblr.com/6c02739c23d1024adc1b8ede3ac143b5/3be2f1c5b410d206-88/s75x75_c1/937617be67a9185d1a18e42dbad32a5fd39a7c6f.gifv"  <h1 align="center"> <strong> . . . Another day has passed . . .</strong> </h1> <img width="20" height="20" src="https://64.media.tumblr.com/6c02739c23d1024adc1b8ede3ac143b5/3be2f1c5b410d206-88/s75x75_c1/937617be67a9185d1a18e42dbad32a5fd39a7c6f.gifv"<p align="center"> 
 
 
 
 &nbsp; 
 
-![tumblr_11d2ea2e5b5fbf345730c574a3df4a14_aacba12c_1280](https://github.com/undeadlost/undeadlost/assets/160256094/2f0be439-3058-4fb7-b8ef-9c4b60f4873b)
+![tumblr_8ef64df6f7472634fd5b3a2ea3006997_2b953079_1280](https://github.com/undeadlost/undeadlost/assets/160256094/898f55d1-0cdb-4c65-a1f2-af5074bade98)
 
 
 
@@ -13,7 +13,7 @@
 
 
 <p align="center">
- <strong>★ . Onyx, He/They <img width="30" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/e1ac073c-054a-4dd8-8985-d4a0847e609a" </strong> 
+ <strong>★ . Onyx, He/They <img width="30" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/95573b52-7612-40e3-85c8-ee42c7e4d318" </strong> 
 </p>
 
 &nbsp; 
@@ -21,7 +21,7 @@
 
 
 <p align="center">
-  <img width="700" height="700" src="https://github.com/undeadlost/undeadlost/assets/160256094/9cab35d7-847d-45d7-90fc-bb23db86b001">
+  <img width="1000" height="700" src="https://github.com/undeadlost/undeadlost/assets/160256094/14763cb0-74c3-4a0b-86be-077fea3973b4">
 </p>
 
 &nbsp; 
@@ -30,35 +30,36 @@
 &nbsp;  
  
 <p align="center">
- <strong>I'm a very shy guy and don't really interact much but I love interactions! </strong> <img width="20" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/cbb2a9c1-8e5e-4c01-aa70-4c0ae9a09a76"
+ <strong>I'm a very shy guy and don't really interact much but I love interactions! </strong> <img width="20" height="20" src="https://64.media.tumblr.com/86b71f485ebf1fa52cd5039a2d6b9167/36f5e1ad0f5c87a2-ed/s75x75_c1/77d7f6ce88835b831dbfe88606011b1480465ec9.gifv"
 </p>
 <p align="center">
-<em>PLEASE DON'T BE AFRAID OF ME!!! I DONT BITE</em> <img width="20" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/f68fe247-6ecd-433e-b91d-d59488fc1320"
+<em>PLEASE DON'T BE AFRAID OF ME!!! I DONT BITE</em> <img width="20" height="20" src="https://64.media.tumblr.com/3d198246a9735fa65318527d59222b99/9c47f833db555754-91/s75x75_c1/09b28b708a72f9d93499af8c1f97a15645253b3e.gifv"
 </p>
 <p align="center">
-<strong> I also have a  <a href= "https://undeadlost.123guestbook.com/" >guestbook</a> if you what to leave me a little message!  <img width="20" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/9087ac9b-f64f-4718-9b14-1adbd4976c48" </strong>
+<strong> I also have a  <a href= "https://undeadlost.123guestbook.com/" >guestbook</a> if you what to leave me a little message!  <img width="20" height="20" src="https://64.media.tumblr.com/12afbd70a774099dc6f27ced39d20059/99b94508bd20c7be-03/s75x75_c1/0ee4f8ce9334f6acae23379fd6ce371db6af4ec2.gifv" </strong>
 </p>
 <p align="center">
-<strong> Also planning on making a rentry soon  </strong> <img width="20" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/2f2449cb-0b7d-4462-a884-504741826eea"
+<strong> Also planning on making a rentry soon  </strong> <img width="20" height="20" src="https://64.media.tumblr.com/b78f3ff090f59b04e7176ee4dc83fdd8/36f5e1ad0f5c87a2-86/s75x75_c1/72616de494053848ad447940914ec18f83998c6c.gifv"
 </p>
 
 &nbsp;
 
-![tumblr_11d2ea2e5b5fbf345730c574a3df4a14_aacba12c_1280](https://github.com/undeadlost/undeadlost/assets/160256094/2f0be439-3058-4fb7-b8ef-9c4b60f4873b)
+![tumblr_8ef64df6f7472634fd5b3a2ea3006997_2b953079_1280](https://github.com/undeadlost/undeadlost/assets/160256094/898f55d1-0cdb-4c65-a1f2-af5074bade98)
 
 
 &nbsp;
-![tumblr_361cb4352da2668422b227c6c9239272_320de96f_1280](https://github.com/undeadlost/undeadlost/assets/160256094/67933a73-55e8-4b09-b821-9ba750c4076b)
+![tumblr_17b2b910efce7780970604f35103fd8b_88af03ce_1280](https://64.media.tumblr.com/17b2b910efce7780970604f35103fd8b/f88a98c01f09e648-0b/s1280x1920/88af03ce135aa76685839833c19ef0cc6a50ce7b.pnj)
 
 
 &nbsp;
 
 <p align="center">
-<i>creds to <a href= "https://www.tumblr.com/cafekitsune" >cafekitsune </a> for dividers!! </i>
+<i>creds to <a href= "https://www.tumblr.com/destinyfaces" >destinyfaces </a> & <a href= "https://www.tumblr.com/benkeibear" >benkeibear </a> for dividers!! </i>
 </p>
 <p align="center">
-<i>creds to  <a href= "https://www.tumblr.com/cirrusism" >cirrusism </a> for graphics!!</i>
+<i>creds to  <a href= "https://www.tumblr.com/destinyfaces" >destinyfaces </a> for graphics!!</i>
 </p>
 <p align="center">
-<i>creds to <a href= "https://ouija.crd.co/#" >ouija </a> , <a href= "https://goldenkamuy.crd.co/#" >golden </a> for stamps!!</i>
+<i>creds to <a href= "https://www.tumblr.com/remniku" >remniku  </a> , <a href= "https://www.tumblr.com/animatedglittergraphics-n-more" >
+animatedglittergraphics-n-more </a> for stamps!!</i>
 </p>
