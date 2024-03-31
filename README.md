@@ -2,11 +2,9 @@
   <img width="20" height="20" src="https://64.media.tumblr.com/919458390a5a8fab193afe88f138ea7f/b55b2416bafcc208-41/s75x75_c1/11f1dda2682a14238aa9949089af0e25ab5d8698.gifv"  <h1 align="center"> <strong> . . . All you folks can hear is me . . .</strong> </h1> <img width="20" height="20" src="https://64.media.tumblr.com/919458390a5a8fab193afe88f138ea7f/b55b2416bafcc208-41/s75x75_c1/11f1dda2682a14238aa9949089af0e25ab5d8698.gifv"<p align="center"> 
 
 
-
 &nbsp; 
 
 ![tumblr_8ef64df6f7472634fd5b3a2ea3006997_2b953079_1280](https://64.media.tumblr.com/aa8f07e36128c775ed070f2cd0373cbf/8155f5bfc2ab92e5-d9/s1280x1920/9e5c41c6cb5d9f592a01314fa34628465968c6dc.pnj)
-
 
 
 &nbsp; 
@@ -17,7 +15,6 @@
 </p>
 
 &nbsp; 
-
 
 
 <p align="center">
