@@ -1,11 +1,11 @@
 <p align="center">
-  <img width="20" height="20" src="https://64.media.tumblr.com/919458390a5a8fab193afe88f138ea7f/b55b2416bafcc208-41/s75x75_c1/11f1dda2682a14238aa9949089af0e25ab5d8698.gifv"  <h1 align="center"> <strong> . . . All you folks can hear is me . . .</strong> </h1> <img width="20" height="20" src="https://64.media.tumblr.com/919458390a5a8fab193afe88f138ea7f/b55b2416bafcc208-41/s75x75_c1/11f1dda2682a14238aa9949089af0e25ab5d8698.gifv"<p align="center"> 
+  <img width="20" height="20" src="https://64.media.tumblr.com/c2e42b0282ea5a62d34e0be2c34406d3/08074beda4cc8409-d1/s75x75_c1/0c7620e1392008d32dcf5061cdf565c0cde6f69d.gifv"  <h1 align="center"> <strong> . . . Melusines are beautiful creatures . . .</strong> </h1> <img width="20" height="20" src="https://64.media.tumblr.com/c2e42b0282ea5a62d34e0be2c34406d3/08074beda4cc8409-d1/s75x75_c1/0c7620e1392008d32dcf5061cdf565c0cde6f69d.gifv"<p align="center"> 
 
 
 &nbsp; 
-
-![tumblr_8ef64df6f7472634fd5b3a2ea3006997_2b953079_1280](https://64.media.tumblr.com/aa8f07e36128c775ed070f2cd0373cbf/8155f5bfc2ab92e5-d9/s1280x1920/9e5c41c6cb5d9f592a01314fa34628465968c6dc.pnj)
-
+<p align="center">
+<img width="1000" height="10" src="https://64.media.tumblr.com/b5a2c5988f767e68c53a7048f9a553e0/30b7ab83829efac0-a0/s640x960/8494434ec3f03a3cfd0fe466f9b18a588c1b4014.pnj"
+<p align="center">
 
 &nbsp; 
 
@@ -18,7 +18,7 @@
 
 
 <p align="center">
-  <img width="=1000" height="800" src="https://64.media.tumblr.com/84c752d77b9434282a698ee373f2924d/8155f5bfc2ab92e5-bb/s640x960/4aaa28b7f14f3aec290e7d845a6ea3ff10aab2f7.gifv">
+  <img width="=800" height="700" src="https://64.media.tumblr.com/0f836e002be4bb7d57438ef1539bde03/30b7ab83829efac0-c7/s640x960/281b49dd1e8f7346fe6d70eb124606369f7c6175.gifv">
 </p>
 
 &nbsp; 
@@ -27,35 +27,38 @@
 &nbsp;  
  
 <p align="center">
- <strong>I'm a very shy guy and don't really interact much but I love interactions! </strong> <img width="20" height="20" src="https://64.media.tumblr.com/8e2a62bd88dca14fee6b52dc0f368e2d/e79aa88fe4d1254a-c0/s75x75_c1/ae402968ba4873410efbe5d6eeb7f1dab5d4a392.gifv"
+ <strong>I'm a very shy guy and don't really interact much but I love interactions! </strong> <img width="20" height="20" src="https://64.media.tumblr.com/31638ab32cc7c85ba10d396f94a34dd0/4720c94c0b561795-1d/s75x75_c1/4e3453c7aac02a8f02fdc153a3bc6073d3daf976.gifv"
 </p>
 <p align="center">
-<em>PLEASE DON'T BE AFRAID OF ME!!! I DONT BITE</em> <img width="20" height="20" src="https://64.media.tumblr.com/bbaea7a3cc9218f50021894652ecbd61/3c325a77cbf3ea01-7f/s75x75_c1/ad97c45107e708cba8e6743763bcd8df3b067b06.gifv"
+<em>PLEASE DON'T BE AFRAID OF ME!!! I DONT BITE</em> <img width="20" height="20" src="https://64.media.tumblr.com/05d5c2d5eb6764f9d0f80a073ff20a91/eb7088c9bc9a98b3-58/s75x75_c1/b976ef5411335c0f514e95ad562e0b124290ca6e.gifv"
 </p>
 <p align="center">
-<strong> I also have a  <a href= "https://undeadlost.123guestbook.com/" >guestbook</a> if you what to leave me a little message!  <img width="20" height="20" src="https://64.media.tumblr.com/ba08a480fef7a4cc020a5462a5d625af/b55b2416bafcc208-22/s75x75_c1/c6f128e70c4f6570580544efdee68d9ac1309f7a.gifv" </strong>
+<strong> I also have a  <a href= "https://undeadlost.123guestbook.com/" >guestbook</a> if you what to leave me a little message!  <img width="20" height="20" src="https://64.media.tumblr.com/cfd53e7b0198805775b61d63d97c8ff6/562c31dce47085f3-92/s75x75_c1/b9c1d662cb748222afbc50c451a2080e4a67d850.gifv" </strong>
 </p>
 <p align="center">
-<strong> Here is the <a href= "https://rentry.co/undeadlost" >rentry</a> I am working on </strong> <img width="20" height="20" src="https://64.media.tumblr.com/bab06ac45249da855eeef85ec21063f6/b55b2416bafcc208-b9/s75x75_c1/e7f5b186fb89ed84a46d71a2655ac19d756594e2.pnj"
+<strong> Here is the <a href= "https://rentry.co/undeadlost" >rentry</a> I am working on </strong> <img width="20" height="20" src="https://64.media.tumblr.com/c930c6ed8ae74a7efff259c1688b720c/08074beda4cc8409-c4/s75x75_c1/6b0c2d8a965c911f2d9964d82d6478af50cb81b2.gifv"
 </p>
 
 &nbsp;
 
-![tumblr_8ef64df6f7472634fd5b3a2ea3006997_2b953079_1280](https://64.media.tumblr.com/d561ef8c412ea45a7ff57ba7992e887c/8155f5bfc2ab92e5-da/s1280x1920/06321c8ee6708fce73dbdbb2c48dc2575ec51f20.pnj)
+<p align="center">
+<img width="1000" height="10" src="https://64.media.tumblr.com/b5a2c5988f767e68c53a7048f9a553e0/30b7ab83829efac0-a0/s640x960/8494434ec3f03a3cfd0fe466f9b18a588c1b4014.pnj"
+<p align="center">
 
 
 &nbsp;
-![tumblr_17b2b910efce7780970604f35103fd8b_88af03ce_1280](https://64.media.tumblr.com/2426896aec592b60d9efe45ec007a1ed/8ac72bb49761ea20-36/s1280x1920/a3e800dfefd7bddcb5cb589af452a08bd1b76ebb.gifv)
-
+<p align="center">
+<img width="700" height="90" src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/3a9adf60716557fd-42/s400x600/5f0a3e29256d75106ca0c043aff7f30a5b1e22cd.gifv"
+<p align="center">
 
 &nbsp;
 
 <p align="center">
-<i>creds to <a href= "https://www.tumblr.com/underwaterkiyo" >underwaterkiyo </a> & <a href= "https://www.tumblr.com/cafekitsune" >cafekitsune </a> for dividers!! </i>
+<i>creds to <a href= "https://www.tumblr.com/cirrusism" >cirrusism </a> & <a href= "https://www.tumblr.com/khaer" >khaer </a> for dividers!! </i>
 </p>
 <p align="center">
-<i>creds to  <a href= "https://www.tumblr.com/underwaterkiyo" >underwaterkiyo </a> for graphics!!</i>
+<i>creds to  <a href= "https://www.tumblr.com/cirrusism" >cirrusism </a> for graphics!!</i>
 </p>
 <p align="center">
-<i>creds to <a href= "https://www.tumblr.com/assetsformyrentry" >assetsformyrentry  </a> , <a href= "https://www.tumblr.com/humbug220" >humbug220 </a> & <a href= "https://www.tumblr.com/bucciniexe" >bucciniexe  </a> for stamps!!</i>
+<i>creds to <a href= "https://www.tumblr.com/sweetparty" >sweetparty  </a> , <a href= "https://www.tumblr.com/emojinator" >emojinator </a> , <a href= "https://www.tumblr.com/cinnapwrin" >cinnapwrin  </a> & <a href= "https://www.tumblr.com/scarvine" >scarvine  </a> for stamps!!</i>
 </p>
