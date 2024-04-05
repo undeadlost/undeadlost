@@ -18,7 +18,7 @@
 
 
 <p align="center">
-  <img width="=800" height="700" src="https://64.media.tumblr.com/0f836e002be4bb7d57438ef1539bde03/30b7ab83829efac0-c7/s640x960/281b49dd1e8f7346fe6d70eb124606369f7c6175.gifv">
+  <img width="=500" height="700" src="https://64.media.tumblr.com/0f836e002be4bb7d57438ef1539bde03/30b7ab83829efac0-c7/s640x960/281b49dd1e8f7346fe6d70eb124606369f7c6175.gifv">
 </p>
 
 &nbsp; 
