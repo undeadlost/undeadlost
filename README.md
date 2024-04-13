@@ -4,7 +4,7 @@
 
 &nbsp; 
 <p align="center">
-<img width="1000" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/34c82516-53de-4f5c-a44e-d892cc032044"
+<img width="1000" height="30" src="https://github.com/undeadlost/undeadlost/assets/160256094/34c82516-53de-4f5c-a44e-d892cc032044"
 <p align="center">
 
 &nbsp; 
@@ -42,7 +42,7 @@
 &nbsp;
 
 <p align="center">
-<img width="1000" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/b548b484-1df0-4007-8cd3-55bcb2918b85"
+<img width="1000" height="30" src="https://github.com/undeadlost/undeadlost/assets/160256094/b548b484-1df0-4007-8cd3-55bcb2918b85"
 <p align="center">
 
 
