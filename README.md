@@ -3,7 +3,9 @@
 
 
 &nbsp; 
-
+<p align="center">
+<img width="700" height="90" src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/3a9adf60716557fd-42/s400x600/5f0a3e29256d75106ca0c043aff7f30a5b1e22cd.gifv"
+<p align="center">
 
 &nbsp; 
 
@@ -49,7 +51,7 @@
 &nbsp;
 
 <p align="center">
-<i>creds to <a href= "https://www.tumblr.com/khaer" >khaer </a> for divider!! </i>
+<i>creds to <a href= "https://www.tumblr.com/khaer" >khaer </a> for dividers!! </i>
 </p>
 <p align="center">
 <i>Graphics by me!!! (don't bully me pls this is the first ever one I did... GHIUSUYGEH idk how y'all do it...)</i>
