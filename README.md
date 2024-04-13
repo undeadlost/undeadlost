@@ -4,7 +4,7 @@
 
 &nbsp; 
 <p align="center">
-<img width="1000" height="10" src="https://64.media.tumblr.com/b5a2c5988f767e68c53a7048f9a553e0/30b7ab83829efac0-a0/s640x960/8494434ec3f03a3cfd0fe466f9b18a588c1b4014.pnj"
+<img width="1000" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/34c82516-53de-4f5c-a44e-d892cc032044"
 <p align="center">
 
 &nbsp; 
@@ -18,7 +18,7 @@
 
 
 <p align="center">
-  <img width="=500" height="600" src="https://64.media.tumblr.com/0f836e002be4bb7d57438ef1539bde03/30b7ab83829efac0-c7/s640x960/281b49dd1e8f7346fe6d70eb124606369f7c6175.gifv">
+  <img width="=500" height="500" src="https://github.com/undeadlost/undeadlost/assets/160256094/afbd5807-233c-4703-9bbe-c98415f299c9">
 </p>
 
 &nbsp; 
@@ -42,7 +42,7 @@
 &nbsp;
 
 <p align="center">
-<img width="1000" height="10" src="https://64.media.tumblr.com/b5a2c5988f767e68c53a7048f9a553e0/30b7ab83829efac0-a0/s640x960/8494434ec3f03a3cfd0fe466f9b18a588c1b4014.pnj"
+<img width="1000" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/b548b484-1df0-4007-8cd3-55bcb2918b85"
 <p align="center">
 
 
@@ -54,11 +54,15 @@
 &nbsp;
 
 <p align="center">
-<i>creds to <a href= "https://www.tumblr.com/cirrusism" >cirrusism </a> & <a href= "https://www.tumblr.com/khaer" >khaer </a> for dividers!! </i>
+<i>creds to me & <a href= "https://www.tumblr.com/khaer" >khaer </a> for dividers!! </i>
 </p>
 <p align="center">
-<i>creds to  <a href= "https://www.tumblr.com/cirrusism" >cirrusism </a> for graphics!!</i>
+<i>Graphics by me!!!</i>
 </p>
 <p align="center">
 <i>creds to <a href= "https://www.tumblr.com/sweetparty" >sweetparty  </a> , <a href= "https://www.tumblr.com/emojinator" >emojinator </a> , <a href= "https://www.tumblr.com/cinnapwrin" >cinnapwrin  </a> & <a href= "https://www.tumblr.com/scarvine" >scarvine  </a> for stamps!!</i>
 </p>
+
+
+![Untitled320_20240412220104](https://github.com/undeadlost/undeadlost/assets/160256094/b548b484-1df0-4007-8cd3-55bcb2918b85)
+
