@@ -3,9 +3,7 @@
 
 
 &nbsp; 
-<p align="center">
-<img width="1000" height="30" src="https://github.com/undeadlost/undeadlost/assets/160256094/34c82516-53de-4f5c-a44e-d892cc032044"
-<p align="center">
+
 
 &nbsp; 
 
@@ -41,9 +39,6 @@
 
 &nbsp;
 
-<p align="center">
-<img width="1000" height="30" src="https://github.com/undeadlost/undeadlost/assets/160256094/b548b484-1df0-4007-8cd3-55bcb2918b85"
-<p align="center">
 
 
 &nbsp;
@@ -54,7 +49,7 @@
 &nbsp;
 
 <p align="center">
-<i>creds to me & <a href= "https://www.tumblr.com/khaer" >khaer </a> for dividers!! </i>
+<i>creds to <a href= "https://www.tumblr.com/khaer" >khaer </a> for divider!! </i>
 </p>
 <p align="center">
 <i>Graphics by me!!! (don't bully me pls this is the first ever one I did... GHIUSUYGEH idk how y'all do it...)</i>
