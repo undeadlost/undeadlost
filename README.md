@@ -55,7 +55,7 @@
 <i>creds to <a href= "https://www.tumblr.com/khaer" >khaer </a> for dividers!! </i>
 </p>
 <p align="center">
-<i>Graphics by me!!! (don't bully me pls this is the first ever one I did... GHIUSUYGEH idk how y'all do it...)</i>
+<i>Graphics by me!!! (don't bully me pls this is the third one I did... GHIUSUYGEH idk how y'all do it...)</i>
 </p>
 <p align="center">
 <i>creds to <a href= "https://www.tumblr.com/sweetparty" >sweetparty  </a> , <a href= "https://www.tumblr.com/emojinator" >emojinator </a> , <a href= "https://www.tumblr.com/cinnapwrin" >cinnapwrin  </a> & <a href= "https://www.tumblr.com/scarvine" >scarvine  </a> for stamps!!</i>
