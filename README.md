@@ -18,10 +18,11 @@
 
 
 <p align="center">
-  <img width="=500" height="500" src="https://github.com/undeadlost/undeadlost/assets/160256094/afbd5807-233c-4703-9bbe-c98415f299c9">
+  <img width="=500" height="500" src="https://github.com/undeadlost/undeadlost/assets/160256094/15cb7a2b-7511-4459-83d4-f2ae609376c5">
 </p>
 
 &nbsp; 
+
 
 
 &nbsp;  
