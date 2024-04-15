@@ -37,7 +37,7 @@
 <strong> I also have a  <a href= "https://undeadlost.123guestbook.com/" >guestbook</a> if you what to leave me a little message!  <img width="20" height="20" src="https://64.media.tumblr.com/cfd53e7b0198805775b61d63d97c8ff6/562c31dce47085f3-92/s75x75_c1/b9c1d662cb748222afbc50c451a2080e4a67d850.gifv" </strong>
 </p>
 <p align="center">
-<strong> Here is the <a href= "https://rentry.co/undeadlost" >rentry</a> I am working on </strong> <img width="20" height="20" src="https://64.media.tumblr.com/c930c6ed8ae74a7efff259c1688b720c/08074beda4cc8409-c4/s75x75_c1/6b0c2d8a965c911f2d9964d82d6478af50cb81b2.gifv"
+<strong> Here is my <a href= "https://rentry.co/undeadlost" >rentry</a> if you wanna know about me >_< </strong> <img width="20" height="20" src="https://64.media.tumblr.com/c930c6ed8ae74a7efff259c1688b720c/08074beda4cc8409-c4/s75x75_c1/6b0c2d8a965c911f2d9964d82d6478af50cb81b2.gifv"
 </p>
 
 &nbsp;
