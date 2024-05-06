@@ -4,7 +4,7 @@
 
 &nbsp; 
 <p align="center">
-<img width="1000" height="120" src="https://media.discordapp.net/attachments/687928401121640456/1234583413193707571/Untitled336.png?ex=663142e7&is=662ff167&hm=5d4614aae1105e88868a16823684035cb8ea93a7199e6b1a3962671d6b579787&=&format=webp&quality=lossless"
+<img width="1000" height="120" src="https://file.garden/ZjhOfU74SkXuNnGg/wrioletted1.png"
 <p align="center">
 
 &nbsp; 
@@ -18,7 +18,7 @@
 
 
 <p align="center">
-  <img width="=600" height="600" src="https://media.discordapp.net/attachments/1224772047331266610/1234578865742020688/IMG_2484.gif?ex=66313eaa&is=662fed2a&hm=19d03ece3ad547ee37e6684330b47b667bb74faad735939fb9c1a99d3ae79212&=&width=676&height=676">
+  <img width="=600" height="600" src="https://file.garden/ZjhOfU74SkXuNnGg/wriolette.gif">
 </p>
 
 &nbsp; 
@@ -46,7 +46,7 @@
 
 &nbsp;
 <p align="center">
-<img width="1000" height="120" src="https://media.discordapp.net/attachments/687928401121640456/1234584081442930820/Untitled336.png?ex=66314386&is=662ff206&hm=56d09a01917fc8842a2c53e9b3003383e80055da7b2746664e1e08358f9cdd15&=&format=webp&quality=lossless"
+<img width="1000" height="120" src="https://file.garden/ZjhOfU74SkXuNnGg/wrioletted.png"
 <p align="center">
 
 &nbsp;
