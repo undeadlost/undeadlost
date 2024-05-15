@@ -9,6 +9,9 @@
 
 &nbsp; 
 
+<p align="center">
+ <strong> <a href= "https://discordid.netlify.app/?id=918776331909627914" >MY DISCORD  </a> accepting friends only <3 </strong>
+</p>
 
 <p align="center">
  <strong>★ . Onyx, He/They <img width="30" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/95573b52-7612-40e3-85c8-ee42c7e4d318" </strong> 
@@ -27,9 +30,6 @@
 
 &nbsp;  
  
-<p align="center">
- <strong> <a href= "https://discordid.netlify.app/?id=918776331909627914" >MY DISCORD  </a> accepting friends only <3 </strong>
-</p>
 
 <p align="center">
  <strong>I'm a very shy guy and don't really interact much but I love interactions! </strong> <img width="20" height="20" src="https://64.media.tumblr.com/efe0d1ad1f2a334c4c2b1b82f095c745/4e25f56b77720d16-b8/s75x75_c1/37855a7edea8f32def5200007c1283d3ef591a3b.gifv"
