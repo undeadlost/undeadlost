@@ -38,7 +38,7 @@
 <em>PLEASE DON'T BE AFRAID OF ME!!! I DONT BITE</em> <img width="20" height="20" src="https://64.media.tumblr.com/98584a93a7ae5b4ccfbbc80648b0a957/b55b2416bafcc208-18/s75x75_c1/2620059f05eb1bf0798d1d4dcb3229d89ca91614.gifv"
 </p>
 <p align="center">
-<strong> I also have a  <a href= "https://undeadlost.123guestbook.com/" >guestbook</a> if you want to leave me a little message!  <img width="20" height="20" src="https://64.media.tumblr.com/ba08a480fef7a4cc020a5462a5d625af/b55b2416bafcc208-22/s75x75_c1/c6f128e70c4f6570580544efdee68d9ac1309f7a.gifv" </strong>
+<strong> I also have a  <a href= "https://retrospring.net/@undeadlost" >retrospring</a> if you want to leave me a little message!  <img width="20" height="20" src="https://64.media.tumblr.com/ba08a480fef7a4cc020a5462a5d625af/b55b2416bafcc208-22/s75x75_c1/c6f128e70c4f6570580544efdee68d9ac1309f7a.gifv" </strong>
 </p>
 <p align="center">
 <strong> Here is my <a href= "https://rentry.co/undeadlost" >rentry</a> if you wanna know about me >_< </strong> <img width="20" height="20" src="https://64.media.tumblr.com/473a70f04581735be597d25200b826b8/b55b2416bafcc208-63/s75x75_c1/68240d22c0e8b53cac4c862c5aa6f7515c3886e8.gifv"
