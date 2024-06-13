@@ -1,5 +1,5 @@
 <p align="center">
-<img width="1000" height="200" src="https://file.garden/ZjhOfU74SkXuNnGg/Creditstohorrere"
+<img width="1000" height="300" src="https://file.garden/ZjhOfU74SkXuNnGg/creditstotumblr2.png"
 <p align="center">
 
 &nbsp; 
@@ -16,7 +16,7 @@
 
 
 <p align="center">
-  <img width="=700" height="700" src="https://file.garden/ZjhOfU74SkXuNnGg/Cirrusgraphicss">
+  <img width="=700" height="700" src="https://file.garden/ZjhOfU74SkXuNnGg/Jiyangraphics">
 </p>
 
 &nbsp; 
@@ -45,7 +45,7 @@
 
 &nbsp;
 <p align="center">
-<img width="1000" height="200" src="https://file.garden/ZjhOfU74SkXuNnGg/Creditstohorrere2"
+<img width="1000" height="300" src="https://file.garden/ZjhOfU74SkXuNnGg/creditstotumblr.png"
 <p align="center">
 
 &nbsp;
