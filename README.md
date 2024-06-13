@@ -1,5 +1,5 @@
 <p align="center">
-<img width="1000" height="300" src="https://file.garden/ZjhOfU74SkXuNnGg/creditstotumblr2.png"
+<img width="1000" height="200" src="https://file.garden/ZjhOfU74SkXuNnGg/creditstotumblr2.png"
 <p align="center">
 
 &nbsp; 
