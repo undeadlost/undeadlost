@@ -45,16 +45,13 @@
 
 &nbsp;
 <p align="center">
-<img width="1000" height="300" src="https://file.garden/ZjhOfU74SkXuNnGg/creditstotumblr.png"
+<img width="1000" height="200" src="https://file.garden/ZjhOfU74SkXuNnGg/creditstotumblr.png"
 <p align="center">
 
 &nbsp;
 
 <p align="center">
 <i>Graphics by me!</i>
-</p>
-<p align="center">
-<i>Dividers by <a href= "https://rentry.co/horrere" >Horrere </a></i>
 </p>
 <p align="center">
 <i>Creds to <a href= "https://www.tumblr.com/saiiyne" >saiiyne  </a> , <a href= "https://www.tumblr.com/bucciniexe" >bucciniexe </a> & <a href= "https://www.tumblr.com/dollicacy" >dollicacy  </a> for pixels!!</i>
