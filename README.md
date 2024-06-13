@@ -16,7 +16,7 @@
 
 
 <p align="center">
-  <img width="1200" height="857" src="https://file.garden/ZjhOfU74SkXuNnGg/Jiyangraphics">
+  <img width="1000" height="800" src="https://file.garden/ZjhOfU74SkXuNnGg/Jiyangraphics">
 </p>
 
 &nbsp; 
