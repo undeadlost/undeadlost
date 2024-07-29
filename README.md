@@ -10,7 +10,7 @@
   <a href="https://retrospring.net/@undeadlost"><img width="650" height="400" src="https://file.garden/ZjhOfU74SkXuNnGg/AKITO2.png"></img></a>
 </p>
 <p align="center">
-  <a href="https://en.pronouns.page/@undeadlost"><img width="650" height="400" src="https://file.garden/ZjhOfU74SkXuNnGg/AKITO3.png"></img></a>
+  <a href="https://en.pronouns.page/@undeadlost"><img width="650" height="400" src="https://file.garden/ZjhOfU74SkXuNnGg/AKITOTHREE.png"></img></a>
 </p>
 
 
