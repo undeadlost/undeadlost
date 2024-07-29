@@ -23,3 +23,5 @@
 <p align="center">
  <strong> <a href= "https://discordid.netlify.app/?id=918776331909627914" >MY DISCORD  </a> accepting friends only <3 </strong>
 </p>
+
+![](https://komarev.com/ghpvc/?username=undeadlost&label=Sweets&style=flat-plastic&color=orange)
