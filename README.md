@@ -16,6 +16,10 @@
 [sign my ata !](https://undeadlost.atabook.org/)
 </div>
 
+
+<p align="center">
+I'm too lazy to fix my images gn
+</p>
 &nbsp;
 
 
