@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=undeadlost&label=♡&style=flat-plastic&color=gray)
 </div>
 <p align="center">
-  <img src="https://file.garden/ZjhOfU74SkXuNnGg/IFOAFHG.png"></img></a>
+  <img src="https://files.catbox.moe/ihj53n.png"></img></a>
 </p>
 <div align="center">
 
@@ -17,9 +17,6 @@
 </div>
 
 
-<p align="center">
-I'm too lazy to fix my images gn
-</p>
 &nbsp;
 
 
@@ -30,5 +27,5 @@ I'm too lazy to fix my images gn
 
 &nbsp;
 <div align="center">
-<img src="https://file.garden/ZjhOfU74SkXuNnGg/susepctkana.png"></img></a>
+<img src="https://files.catbox.moe/kl7zsp.png"></img></a>
 </div>
