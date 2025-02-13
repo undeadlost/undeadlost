@@ -21,10 +21,11 @@
 
 &nbsp;
 
-
-
-
+<div align="center">
+  
+Me and [Lynn](https://github.com/MelancholicDays) on fisch core
+</div>
 &nbsp;
 <div align="center">
-<img src="https://files.catbox.moe/kl7zsp.png"></img></a>
+<img src="https://files.catbox.moe/uwunt6.png"></img></a> <img src="https://files.catbox.moe/zwi06c.png"></div></a>
 </div>
