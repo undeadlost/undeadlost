@@ -23,9 +23,11 @@
 
 <div align="center">
   
-Me and [Lynn](https://github.com/MelancholicDays) on fisch core
+Random Onyx clip
 </div>
 &nbsp;
-<div align="center">
-<img src="https://files.catbox.moe/uwunt6.png"></img></a> <img src="https://files.catbox.moe/zwi06c.png"></div></a>
-</div>
+
+
+
+https://github.com/user-attachments/assets/8910097a-be78-4539-9376-5f3bd7736526
+
