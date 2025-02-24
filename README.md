@@ -7,7 +7,7 @@
 </p>
 <div align="center">
 
-🎤ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/fella)ㅤㅤㅤㅤㅤ†ㅤㅤㅤㅤㅤ[retrospring](https://retrospring.net/@roccia)ㅤㅤㅤㅤㅤ†ㅤㅤㅤㅤㅤ[pronounspage](https://en.pronouns.page/@undeadlost)ㅤㅤㅤㅤㅤ🌌
+🎤ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/fella)ㅤㅤㅤㅤㅤ†ㅤㅤㅤㅤㅤ[revospring](https://revospring.net/@crush)ㅤㅤㅤㅤㅤ†ㅤㅤㅤㅤㅤ[pronounspage](https://en.pronouns.page/@undeadlost)ㅤㅤㅤㅤㅤ🌌
 </div>
 
 &nbsp;
