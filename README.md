@@ -17,10 +17,7 @@
 </div>
 
 &nbsp;
-<div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o0k57cb316l0a9ksqzpbnbko6&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=4900ae&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-</div>
 &nbsp;
 
 <div align="center">
