@@ -7,15 +7,6 @@
 </p>
 <div align="center">
 
-🎤ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/fella)ㅤㅤㅤㅤㅤ†ㅤㅤㅤㅤㅤ[spring](https://spring.love4eva.net/@pill)ㅤㅤㅤㅤㅤ†ㅤㅤㅤㅤㅤ[pronounspage](https://en.pronouns.page/@undeadlost)ㅤㅤㅤㅤㅤ🌌
-</div>
-
-&nbsp;
-<div align="center">
-
-[sign my ata !](https://undeadlost.atabook.org/)
-</div>
-
 &nbsp;
 
 &nbsp;
