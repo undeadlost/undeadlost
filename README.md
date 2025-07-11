@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=undeadlost&label=♡&style=flat-plastic&color=gray)
 </div>
 <p align="center">
-  <img src="https://files.catbox.moe/ihj53n.png"></img></a>
+  <img src="https://file.garden/ZjhOfU74SkXuNnGg/yeah.jpg"></img></a>
 </p>
 <div align="center">
 
@@ -19,14 +19,3 @@
 &nbsp;
 
 &nbsp;
-
-<div align="center">
-  
-Random Onyx clip
-</div>
-&nbsp;
-
-
-
-https://github.com/user-attachments/assets/8910097a-be78-4539-9376-5f3bd7736526
-
