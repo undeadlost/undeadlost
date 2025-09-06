@@ -2,7 +2,8 @@
   
 ![](https://komarev.com/ghpvc/?username=undeadlost&label=♡&style=flat-plastic&color=grey)
 
-new rentry coming soon
+[rentry](https://rentry.co/yumms)
+
 </div>
 <p align="center">
   <img src="https://file.garden/ZjhOfU74SkXuNnGg/soilesies.jpg"></img></a>
