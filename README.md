@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=undeadlost&label=♡&style=flat-plastic&color=grey)
 
-[rentry](https://rentry.co/yumms)
+[rentry](https://rentry.co/yumms) [alterspring](https://alterspring.org/@trans)
 
 </div>
 <p align="center">
