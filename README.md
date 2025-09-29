@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=undeadlost&label=♡&style=flat-plastic&color=grey)
+![](https://komarev.com/ghpvc/?username=undeadlost&label=🦋&style=flat-plastic&color=grey)
 
 [rentry](https://rentry.co/yumms) [alterspring](https://alterspring.org/@trans)
 
