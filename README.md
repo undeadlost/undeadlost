@@ -11,8 +11,9 @@ do iwc when talking to me i'm a sensitive person
 </div>
 <p align="center">
   
+
   
-https://github.com/user-attachments/assets/8094182e-597c-4a05-a78c-3527786c28f3
+https://github.com/user-attachments/assets/a44d0006-4162-4588-8041-8edf3f34456e
 </p>
 <div align="center">
 
