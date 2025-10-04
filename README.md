@@ -13,7 +13,7 @@ do iwc when talking to me i'm a sensitive person
   
 
   
-https://github.com/user-attachments/assets/42e3854d-58d6-4324-989e-43446abd977d
+https://github.com/user-attachments/assets/f621805d-f562-4ee8-97d3-1d3e40ca23bc
 </p>
 <div align="center">
 
