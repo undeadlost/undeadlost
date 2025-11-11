@@ -7,9 +7,8 @@ get original you'll never be me baby
   
 ![](https://komarev.com/ghpvc/?username=undeadlost&label=👓&style=flat-plastic&color=grey)
 
-[rentry](https://rentry.co/lvoryy) [atabook](https://undeadlost.atabook.org/) [strawpage](https://necroiogist.straw.page/)
+[rentry](https://rentry.co/lvoryy) [atabook](https://undeadlost.atabook.org/)
 
-[alterspring](https://alterspring.org/@trans)
 
 do iwc when talking to me i'm a sensitive person
 
