@@ -3,7 +3,7 @@
   
 ![](https://komarev.com/ghpvc/?username=undeadlost&label=👓&style=flat-plastic&color=grey)
 
-[rentry](https://rentry.co/lvoryy) [atabook](https://undeadlost.atabook.org/)
+[atabook](https://undeadlost.atabook.org/)
 
 
 do iwc when talking to me i'm a sensitive person
