@@ -8,15 +8,7 @@
 
 do iwc when talking to me i'm a sensitive person
 
-
-♡ me & my sibling lacie 𐙚
-
-<img width="828" height="285" alt="Untitled509_20260706054032" src="https://github.com/user-attachments/assets/b482ea68-d604-4f5e-ba87-04aa7904d146" />
-
-&nbsp;
-
-&nbsp;
-
+this honestly will get a makeover sooner or later
 
 me and [lynn](https://github.com/MelancholicDays) fruitcaking it up
 
