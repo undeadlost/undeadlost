@@ -8,8 +8,7 @@
 
 do iwc when talking to me i'm a sensitive person
 
-this honestly will get a makeover sooner or later
-
+profile revamp soon...
 
 </div>
 <p align="center">
