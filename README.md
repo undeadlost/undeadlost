@@ -10,7 +10,7 @@ do iwc when talking to me i'm a sensitive person
 
 profile revamp soon...
 
-art by siorc ^_^
+art by [siorc](https://github.com/gummysharks)!
 
 </div>
 <p align="center">
