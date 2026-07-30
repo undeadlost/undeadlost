@@ -8,7 +8,7 @@
 
 do iwc when talking to me i'm a sensitive person
 
-profile revamp soon...
+MATCHING RENTRY [♡](https://rentry.co/secretsintern)
 
 art by [siorc](https://github.com/gummysharks)!
 
