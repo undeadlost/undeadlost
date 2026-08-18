@@ -10,8 +10,6 @@ do iwc when talking to me i'm a sensitive person
 
 plus most fandoms iwc
 
-duo [♡](https://rentry.co/secretsintern)
-
 
 </div>
 <p align="center">
@@ -22,5 +20,7 @@ https://github.com/user-attachments/assets/41ac5665-c56e-4d09-9d64-6ff0c9d8bed6
 <div align="center">
 
 &nbsp;
-
-&nbsp;
+<div align="left">
+  
+duo [♡](https://rentry.co/secretsintern)
+</div>
