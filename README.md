@@ -22,4 +22,4 @@ https://github.com/user-attachments/assets/41ac5665-c56e-4d09-9d64-6ff0c9d8bed6
 
 &nbsp;
   
-i love my trio [♡](https://github.com/gummysharks) [♡](https://github.com/SodanGum)
+trio [♡](https://github.com/gummysharks) [♡](https://github.com/SodanGum)
