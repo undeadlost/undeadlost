@@ -3,7 +3,7 @@
   
 ![](https://komarev.com/ghpvc/?username=undeadlost&label=🐐&style=flat-plastic&color=grey)
 
-[atabook](https://undeadlost.atabook.org/)
+[atabook](https://undeadlost.atabook.org/)⠀⠀[carrd](https://parallelismduos.carrd.co/)
 
 profile rmk soon..
 
