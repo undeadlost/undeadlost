@@ -19,7 +19,7 @@ me and my lil [brothr](https://github.com/funfettis)
 <img width="190" height="100" alt="931b3b40c39a76407632250ac4980d72" src="https://github.com/user-attachments/assets/703b6035-7236-42b8-8066-70956bd6bb65" />
 
 
-https://github.com/user-attachments/assets/41ac5665-c56e-4d09-9d64-6ff0c9d8bed6
+https://github.com/user-attachments/assets/7afb1717-c876-4b6e-90e7-49a1aaec60f9
 
 </p>
 <div align="center">
