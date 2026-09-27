@@ -5,6 +5,8 @@
 
 [atabook](https://undeadlost.atabook.org/)⠀⠀[carrd](https://parallelismduos.carrd.co/)
 
+[prnscc](https://pronouns.cc/@neuvillettes)
+
 profile rmk soon..
 
 do iwc when talking to me i'm a sensitive person 
