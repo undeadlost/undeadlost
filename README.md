@@ -7,7 +7,7 @@
 
 [prnscc](https://pronouns.cc/@neuvillettes)
 
-profile rmk soon..
+i don't move often anymore as i have no energy anymore
 
 do iwc when talking to me i'm a sensitive person 
 
