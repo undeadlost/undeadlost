@@ -7,7 +7,7 @@
 
 [prnscc](https://pronouns.cc/@neuvillettes)
 
-i don't move often anymore as i have no energy anymore
+i don't move often anymore as i have no energy
 
 do iwc when talking to me i'm a sensitive person 
 
